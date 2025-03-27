@@ -14,7 +14,7 @@ Get New Version__😎✔
 
 
 
-# 👨‍💻 *SESSION MADE BY MASTER MIND* 👨‍💻
+# 👨‍💻 *SESSION MADE BY DILA* 👨‍💻
 
 
 ## *NOTE*
@@ -45,9 +45,8 @@ Get New Version__😎✔
 
 
 ## DEPLOY VIDEO
-[Click](MAKE SOON)
-
+[Click](SOON)
 <br>
 
 
-[`Helper`](https://wa.me/+94760224138=Session_Problem😢)
+[`Helper`](https://wa.me/+94760224138ssion_Problem😢)
